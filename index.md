@@ -1,5 +1,6 @@
 ## Welcome to GitHub Pages
-owned by Jyrelle Joy Tamaray
+
+Owned by Jyrelle Joy Tamaray
 
 You can use the [editor on GitHub](https://github.com/hatdogjo/hatdogjo1.github.io/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
