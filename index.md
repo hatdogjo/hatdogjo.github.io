@@ -19,13 +19,13 @@ An animated Disney adventure follows disfigured Quasimodo (Tom Hulce), the bell-
 
 ## 3. *The little mermaid* 1989
 
-![alt aladdin](https://static.wikia.nocookie.net/the-jh-movie-collection-official/images/c/c0/The_Little_Mermaid_%28Official_1989_Film_Poster%29.png/revision/latest?cb=20210226071026)
+![alt aladdin](http://images5.fanpop.com/image/photos/31600000/The-Little-Mermaid-Movie-Poster-disney-princess-31630303-200-200.jpg)
 
  A rebellious 16-year-old mermaid Ariel (Jodi Benson) is fascinated with life on land. On one of her visits to the surface, which are forbidden by her controlling father, King Triton, she falls for a human prince. Determined to be with her new love, Ariel makes a dangerous deal with the sea witch Ursula (Pat Carroll) to become human for three days. But when plans go awry for the star-crossed lovers, the king must make the ultimate sacrifice for his daughter.
  
 ## 2. *Peter Pan* 1953
 
-![alt aladdin](https://lumiere-a.akamaihd.net/v1/images/p_peterpan_19755_96e77c5b.jpeg)
+![alt aladdin](https://i.pinimg.com/originals/72/91/5f/72915f97b9f4412cabf0116efd35aa29.jpg)
 
 Wendy (Kathryn Beaumont) and her two brothers are amazed when a magical boy named Peter Pan (Bobby Driscoll) flies into their bedroom, supposedly in pursuit of his rebellious shadow. He and his fairy friend, Tinkerbell, come from a far-off place called Neverland, where children stay perpetually young. Enchanted, the kids follow him back. But when Pan's nemesis, the pirate Captain Hook (Hans Conried), causes trouble, the kids begin to miss their old life.
 
